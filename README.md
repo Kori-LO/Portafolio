@@ -2,7 +2,7 @@
 
 - Ingeniero Agrónomo y Magister en Gestión de Empresas Agroalimentarias - Pontificia Universidad Católica de Chile
 
-- Agrónomo egresado, con intereses en el área económica, administración y gestión. Proactivo y con orientación a realizar objetivos. Dispuesto a seguir aprendiendo y con deseos de generar impactos en la sociedad.
+- Agrónomo con intereses en el área económica, administración, gestión y educación. Proactivo y con orientación a realizar objetivos. Dispuesto a seguir aprendiendo, con deseos de trabajar con equipos multidisciplinarios y de generar impactos en la sociedad
 
 ## Portafolio
 
